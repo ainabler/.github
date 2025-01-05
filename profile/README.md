@@ -48,4 +48,4 @@ I firmly believe that integrating Generative AI into business processes can revo
 
 Need professional consultation or training in AI and low-code LLM? Let's connect!
 
-📧 Email: [hanif.rinardi84@gmail.com](mailto:hanif.rinardi84@gmail.com)
+📧 Email: [hanif.ainabler@gmail.com](hanif.ainabler@gmail.com
